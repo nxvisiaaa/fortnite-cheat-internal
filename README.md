@@ -10,7 +10,3 @@ if you don't join you will have to update it every patch instead of me updating 
 
 Short thing - Join da server 
 https://discord.gg/pheonix
-https://discord.gg/pheonix
-https://discord.gg/pheonix
-https://discord.gg/pheonix
-https://discord.gg/pheonix
